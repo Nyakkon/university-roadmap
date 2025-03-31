@@ -37,7 +37,7 @@
 
 🎯 Xác định **định hướng sự nghiệp** rõ ràng, tìm cơ hội ở **các công ty/tập đoàn lớn** có đào tạo chuyên nghiệp.
 
-📄 **CV là vũ khí**: Hãy biến nó thành một bức tranh thật ấn tượng về bạn – từ dự án, hoạt động, đến thành tích.
+📄 **CV là vũ khí**: Hãy biến nó thành một bức tranh thật ấn tượng về bạn – từ dự án, hoạt động xã hội, đến thành tích.
 
 🔍 Nghiên cứu **mức lương**, yêu cầu tuyển dụng để bổ sung thêm **tư duy phân tích**, **phản biện**, và **giải quyết vấn đề**.
 
