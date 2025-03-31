@@ -39,7 +39,7 @@
 
 📄 **CV là vũ khí**: Hãy biến nó thành một bức tranh thật ấn tượng về bạn – từ dự án, hoạt động xã hội, đến thành tích.
 
-🔍 Nghiên cứu **mức lương**, yêu cầu tuyển dụng để bổ sung thêm **tư duy phân tích**, **phản biện**, và **giải quyết vấn đề**.
+🔍 Nghiên cứu **mức lương**, bổ sung thêm các kỹ năng tư duy cao cấp như **tư duy phân tích**, **phản biện**, và **giải quyết vấn đề**.
 
 ### 🎯 Tóm lại, 3 nhiệm vụ:
 - 🧭 Có **kế hoạch nghề nghiệp rõ ràng**
